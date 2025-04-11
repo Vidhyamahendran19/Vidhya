@@ -5,7 +5,6 @@
 
 - 📫 How to reach me **vidhyamahendran19@gmail.com**
 
-- ⚡ Fun fact **I Love cooking and drawing**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
